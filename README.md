@@ -13,10 +13,7 @@
 
 各部分都有自己的使用说明
 
-#### 捐赠
 
-![image](https://s1.ax1x.com/2020/07/15/Ud8MBn.jpg)
-![image](https://s1.ax1x.com/2020/07/15/Ud8DN6.jpg)
 
 
 
